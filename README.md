@@ -1,1 +1,0 @@
-# WaffleJpgLocationBase202410291710u7wiim
